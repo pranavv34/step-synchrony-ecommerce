@@ -1,5 +1,4 @@
-# PlaneSprint-Team-14
-Sure! Here's the updated version including the team details and website link:
+# Step Synchrony E-Commerce Website
 
 ## Welcome to our E-commerce Website!
 
